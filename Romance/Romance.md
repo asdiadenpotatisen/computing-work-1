@@ -10,4 +10,5 @@ Oh, how much does poor little Johny wish that his could become just slightly mor
 But then one magnificent day, a ground-breaking app was released--Tinder!
 When Johny saw this new app, he was absolutely delighted!
 Instantaenously, photoshopped-images of his body flashed across his childish mind.
-He wondered, hoho, after my transformation online, my dating chance will surely sky-rocket.
+He wondered, hoho, after my transformation online, my dating chance will surely sky-rocket!
+With that in his mind, he installed this dating app and started trying to successully created an attractive profile picture, spending dusk till dawn in his room that is full of imagination.
